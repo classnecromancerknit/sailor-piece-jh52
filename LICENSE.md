@@ -1,4 +1,4 @@
-#  
+#  sailor piece Script no-ban offers the most advanced sailor piece Script, with auto-upgrade and god mode. Perfect for dominating any match.
 
 
 
